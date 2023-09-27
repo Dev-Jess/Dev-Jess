@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Jessica Sousa 😁
+## Bem-vindo(a) ao perfil da Jessica Sousa :sunglasses:	:computer:
 
  <div>
    <a href="https://github.com/Dev-Jess">
